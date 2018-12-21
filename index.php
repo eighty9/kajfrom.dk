@@ -1,1 +1,1 @@
-lone
+lone og kaj
